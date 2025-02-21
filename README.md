@@ -1,2 +1,2 @@
 # about-me
-my name is alishba<br> I am bscs student
+my name is<B> Alishba I am bscs student
