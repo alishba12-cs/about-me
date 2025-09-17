@@ -1,4 +1,4 @@
-# 👩‍💻 About Me  
+# 👩‍💻ALISHBA  
 
 Hi! I’m **Alishba Noor** 🌸  
 A passionate **Computer Science student** at *International Islamic University, Islamabad* 📚, with a strong interest in both **technology** and **creativity**.  
