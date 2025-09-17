@@ -55,6 +55,6 @@ A passionate **Computer Science student** at *International Islamic University, 
 
 ---
 
-## 💫 In One Line  
+## 💫 My Essence
 I am a **curious, creative, and passionate student** who loves to combine **logic 💻** with **imagination 🎨**, making learning a journey full of discovery and fun. 🌸✨  
  
